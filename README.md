@@ -1,0 +1,1 @@
+# sipusta.github.io Ini adalah Aplikasi Skripsi saya di kampus STMIK  MIC CIKARANG  pada  tahun 2018, jika ingin menggunakan aplikasi saya untuk bahan skripsi anda silahkan  hubungi saya di no 081214600799, TERIMAKASIH
